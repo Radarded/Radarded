@@ -1,2 +1,3 @@
 Hi, I’m @Radarded
-That's it, i'm a little radarded as you may think
+
+a few steps from being the best malware analyst around
